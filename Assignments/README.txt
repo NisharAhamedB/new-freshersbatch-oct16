@@ -1,3 +1,3 @@
-All the assignments for git and github is completed and done.
+All the assignments for git and github are completed and done.
 
 Nishar
